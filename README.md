@@ -1,1 +1,1 @@
-# web-sync-practice
+# я пукнытый тоха
